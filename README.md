@@ -1,4 +1,4 @@
-# hello-world
-Juukelis puukelis
-Olen 12-vuotias homo Suomesta
-Haluan oppia haxaamaan Obaman tietosuojan 
+#hello-world
+
+I'm Moneybags, but my real username was already taken so I'm Muneybags now :(.
+Oh oh oh oh! I like trains :) and cookies are delicious!
